@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @MINGLEDCAT
+- 👀 I’m interested in ... progrmar y desarrollar, todo conocimiento es bienvenido 
